@@ -10,13 +10,7 @@ with diffe                                         fdfasdfdasfdfd
      
 
        f
-       gg
-       ggg
-       gg
-       gg
-       gg
-       gg
-       gg
+     
        gg
        ggg
        gggg
