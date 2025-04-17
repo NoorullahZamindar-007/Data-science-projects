@@ -1,6 +1,6 @@
 # Data-science-projects
 Hello all this is Noorullah Zamindar
-
+c
 This is the file that include all the resources                  
 with diffe                                         fdfasdfdasbfdfd                    
          
