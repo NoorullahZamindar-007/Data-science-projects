@@ -4,8 +4,7 @@ carbddcddqddeedeeddddfdft
 This is the file that include all the resources                  
 with diffe                                         fdfasdfdasbfdfd                    
          
-           sadfdsafdsaf             
-                                      
+fads                                      
 sdf   dsdfcdv                fdfgfds             fdfsa
        ggfdfdasfffffffdfg       fdsdf fdsdfgfff   fasd
        gggfadf
