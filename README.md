@@ -7,8 +7,4 @@ with diffe                                         fdfasdfdasbfdfd
 fads                                      
 sdf   dsdfcdv                fdfgfds             fdfsafdffgdsfgfgsgsdfgfgdfgsdfgdf
        ggfdfdasfffffffdfg       fdsdf fdsdfgfff   favccsd
-       gggfadffdfsagfsdg
-wv   fdsafd
-                     gfds
-gfds
-afdsa
+       gggg
