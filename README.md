@@ -5,6 +5,4 @@ This is the file that include all the resources
 with diffe                                         fdfasdfdasbfdfd                    
          
 fads 
-sdf   dsdfcdv                fdfgfds             fdfsafdffgdsfgfgsgsdfgfgdfgsdfgdf
-       ggfdfdasfffffff     
  
