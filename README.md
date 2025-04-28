@@ -6,7 +6,7 @@ This is the file that include all the resources
 sdfghgfdsdfg
 afsdfafd
 sdfghgf dfgfdsd sdfgvs sdf dferre
-dfggfd erfghgfd efggfds dfgf fasdfasfasf              
+dfggfd erfghgfd efggfds dfgf fasdfasfasf        
 fdsfdffsfsdfsdf
  
 d           
