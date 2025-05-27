@@ -7,6 +7,4 @@ This is the file that include all the resources
 fsdfsdfsdf
 dsfdsfsdfsdfdfdsfdf
 dsfdsfdsfdsfsd
-fdfsdfsfdfs                
-fsdfsdfsfd           
-       
+fdfsdfsfdfs                          
